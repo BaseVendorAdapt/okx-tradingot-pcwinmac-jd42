@@ -1,4 +1,4 @@
-# 
+# Avanzado okx trading bot flujo de trabajo para Mac OS | Gratuito okx trading bot flujo de trabajo para PC Windows. Con visualización de datos y optimización de ruta — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
